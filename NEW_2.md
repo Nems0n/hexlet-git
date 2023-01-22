@@ -1,1 +1,1 @@
-Just for a secnod test
+the text was replaced
